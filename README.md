@@ -2,5 +2,6 @@
 
 <sub>[atabook](https://bully.atabook.org/)    [rentry](https://rentry.co/lousy)     [spotify](https://rentry.co/wipd)   [trn](https://rentry.co/wipd)   ![GIF image](https://github.com/user-attachments/assets/685fbfd7-6e61-4d79-95f2-6d3b8b347842)
 <img width="48" height="20" alt="PNG image" src="https://github.com/user-attachments/assets/1943ef1b-0248-46f8-92ac-beb37cb04189" /> <sub>read rentry before you interact // do not copy my ponies
+<img width="900" height="10" alt="PNG image" src="https://github.com/user-attachments/assets/986f788a-86d7-47b4-b4cb-6a873bcb9853" />
 
 
