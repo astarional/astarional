@@ -4,6 +4,6 @@
 <img width="48" height="20" alt="PNG image" src="https://github.com/user-attachments/assets/1943ef1b-0248-46f8-92ac-beb37cb04189" /> <sub>read rentry before you interact // do not copy my ponies
 <img width="900" height="10" alt="PNG image" src="https://github.com/user-attachments/assets/986f788a-86d7-47b4-b4cb-6a873bcb9853" />
 <sub>**astar(ion)**, **skyler** OR **lloyd** ;; ask 4 prns + name pref ![GIF image](https://github.com/user-attachments/assets/bab3896e-5874-4612-86e9-fca7daf089a3)
-
+**marvel, dcu, baldurs gate, ninjago, yugioh, jjba, hazbin hotel**
 
 
