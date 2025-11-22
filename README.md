@@ -9,3 +9,4 @@ ns yumeshipper of **johnny storm**, **lin lie**, **mark grayson**, **viltrum!mar
 <img width="48" height="20" alt="PNG image" src="https://github.com/user-attachments/assets/1943ef1b-0248-46f8-92ac-beb37cb04189" />
 dni **25+**, dni **10-**, i am **14** and prefer to not converse with adults // c+h encouraged, fandom int, occassionally offtab ◡ ིྀ ︶ ̩͙⏝ ⏝ ̩͙︶ ིྀ◡
 i always sit with @metaIIic but dont be afraid to approach me and him!
+<img width="714" height="295" alt="PNG image" src="https://github.com/user-attachments/assets/4524f928-905f-4879-927f-ebbbec8baf16" />
