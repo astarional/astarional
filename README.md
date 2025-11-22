@@ -6,4 +6,6 @@
 <sub>**astar(ion)**, **skyler** OR **lloyd** ;; ask 4 prns + name pref   ![GIF image](https://github.com/user-attachments/assets/bab3896e-5874-4612-86e9-fca7daf089a3)
 ![IMG_6494_1](https://github.com/user-attachments/assets/10699070-42f7-4da9-9b45-472b87a5f5a8)   **marvel, dcu, baldurs gate, ninjago, yugioh, jjba, hazbin hotel**
 ns yumeshipper of **johnny storm**, **lin lie**, **mark grayson**, **viltrum!mark**, **cole brookstone** && **astarion ancunin** // dni if you yume them   ![GIF image](https://github.com/user-attachments/assets/9af7a500-a54f-4a7d-892f-a44c3515768e)
+<img width="48" height="20" alt="PNG image" src="https://github.com/user-attachments/assets/1943ef1b-0248-46f8-92ac-beb37cb04189" />
+dni **25+**, dni **10-**, i am 14 and prefer to not converse with adults unless ive known you for over **6 months**
 
